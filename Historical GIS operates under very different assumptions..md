@@ -1,0 +1,1 @@
+While historical documents demand a context in which the varying meanings of a word can be studied, GIS depends on the plotting of unvarying points on the ground. 

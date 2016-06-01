@@ -1,0 +1,2 @@
+The idea that an analysis of dna involved deciphering nature's code and making it legible for human manipulation and modification  is central to the storytelling involved in big data.
+The precision denoted in graphs and points on earth seems to correspond to precision. 
